@@ -1,0 +1,1 @@
+Peningkatan sumber daya manusia yang berkualitas, berilmu, beriman, dan berbudi pekerti luhur.
